@@ -1,0 +1,2 @@
+# premium-coop-restore-001-antique-barrel-restoration-pro
+Tracking every stave, hoop, and repair step across multiple antique barrels is chaos without a system—and you're losing critical documentation that proves authenticity and provenance. The Antique Barrel Restoration Project Template brings order to traditional coopering work.  This Notion template is built specifically for barrel restorers who need
